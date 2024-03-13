@@ -1,6 +1,4 @@
 # Secret-Repository-SHHHHHHH
-SHHHHHH DONT SPILL ITS SECRETS
-
 
 NARRATOR:
 (Black screen with text; The sound of buzzing bees can be heard)
